@@ -9,3 +9,5 @@ His only relevant AI experience is in working in a FANNG's AI division for about
 Having experienced growing up in an environment where Harry Potter is considered 'Satanic', he now travels the world in search on a place he can read novels and write about the future without undue interference.
 
 *He would be disappointed if an Artificial Super Intelligence actually did this
+
+_('danieltjw' is a common name and its use on other social media should not be assumed to be the same person)_
