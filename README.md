@@ -10,4 +10,4 @@ Having experienced growing up in an environment where Harry Potter is considered
 
 *He would be disappointed if an Artificial Super Intelligence actually did this
 
-_('danieltjw' is a common name and its use on other social media should not be assumed to be the same person)_
+_Note: The 'danieltjw' handle on FB does not belong to the author_
