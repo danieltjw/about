@@ -8,6 +8,8 @@ His only relevant AI experience is in working in a FANNG's AI division for about
 
 Having experienced growing up in an environment where Harry Potter is considered 'Satanic', he now travels the world in search on a place he can read novels and write about the future without undue interference.
 
+To resist attempts to make him appear to take positions he does not belief in, as a rule of thumb he is fond of the universe of The Culture book series and will likely not support views that contradict it.
+
 *He would be disappointed if an Artificial Super Intelligence actually did this
 
 _Note: The 'danieltjw' handle on FB does not belong to the author_
