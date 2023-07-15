@@ -10,6 +10,10 @@ Having experienced growing up in an environment where Harry Potter is considered
 
 To resist attempts to make him appear to take positions he does not belief in, as a rule of thumb he is fond of the universe of The Culture book series and will likely not support views that contradict it.
 
+_He is fine with being persuaded by different views, but draws the line at the use of underhanded tactics to make him appear to support views he does not believe in._
+
+---
+
 With his non-compete completed in 2023, he now spends his free time developing strategies to reach friendly AGI.
 
 He has been quite selective of the places he works due to cases where harmless fascinations by a small minority of colleagues have led to unhealthy controlling obsession. He prefers limited consultation work over full time work for this reason.
