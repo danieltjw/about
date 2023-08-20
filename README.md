@@ -20,4 +20,4 @@ He has been quite selective of the places he works due to cases where harmless f
 
 Towards a cautious but hopeful AGI future!
 
-_Note: The 'danieltjw' handle on FB does not belong to the author_
+_Note: The 'danieltjw' handle on FB and the 'danieltjw' channel on YT does not belong to the author_
